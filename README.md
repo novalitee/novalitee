@@ -1,7 +1,6 @@
 
 # Mainly for ponytwon !! ( ^ _ ^ )
 
-hiya /!! im frosty or i cud go by heirloom , eve , scag or whitelily !
 hiya /!! im frosty or i cud go by eve and any nicknames are appresciated and allowed ^^
 
                           .  ˚       
