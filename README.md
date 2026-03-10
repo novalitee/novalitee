@@ -3,7 +3,8 @@
 
 hiya /!! im frosty or i cud go by eve and any nicknames are appreciated and allowed ^^
 
-                          .  ˚       
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d62uah2puexptlitjebsj7ycn4&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=a9bda8&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+        
                              ˚★ 
                 ⊹₊ ˚‧︵‿₊୨୧₊‿︵‧ ˚ ₊⊹
            i mostly listen to music most of the time !!
@@ -15,6 +16,5 @@ hiya /!! im frosty or i cud go by eve and any nicknames are appreciated and allo
                                         (\_(\    /)_/)
                                        (     )  (     )
                                        /    |    |     \
-                                      ( O   |    |    O )  ok thats it.. erm ya.. [
+                                      ( O   |    |    O )  ok thats it.. erm ya..
                                       
- .   .. ![image](https://github.com/user-attachments/assets/53b6fc2c-321e-4358-b5e1-88540e4e39ac)
