@@ -15,5 +15,5 @@ hiya /!! im frosty or i cud go by eve and any nicknames are appreciated and allo
                                         (\_(\    /)_/)
                                        (     )  (     )
                                        /    |    |     \
-                                      ( O   |    |    O )  ok thats it.. erm ya..
+                                      ( O   |    |    O )  im awkward if i js met you sososoos srry !!
                                       
